@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 honestly whoever wants to. 
 - 🤔 lol
 - 💬 Ask me about: life
-- 📫 How to reach me:4708453222
+- 📫 How to reach me:4708453221
 - 😄 Pronouns: him
 - ⚡ Fun fact: lived like everywhere...
 
