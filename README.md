@@ -13,4 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me:4708453222
 - 😄 Pronouns: him
 - ⚡ Fun fact: lived like everywhere...
+
+Aloha shalom and was hattnin.
 -->
